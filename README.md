@@ -1,1 +1,1 @@
-# mush-beauty.shop
+MUSH BEAUTY SHOP
